@@ -11,7 +11,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1YDq0rOyP4cUawItmAfia1GImCon5uGZS/view](https://drive.google.com/file/d/1YDq0rOyP4cUawItmAfia1GImCon5uGZS/view)
 
-- ⚡ Fun fact **I think I am rock**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
